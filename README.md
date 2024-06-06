@@ -8,3 +8,5 @@ Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
 @alurastartestudante
+
+![](https://media1.tenor.com/m/-AAA-k6jEFkAAAAd/bluepen.gif)
